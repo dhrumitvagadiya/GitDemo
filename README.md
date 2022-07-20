@@ -1,6 +1,5 @@
 # Vagadiya Dhrumit
 
-Dhrumit Vagadiya is a copany [CEO]
-mahnknnjnjnhbnjkmjkn
+Dhrumit Vagadiya is a copany [CEO] !!
 
 ## VD [CEO]
